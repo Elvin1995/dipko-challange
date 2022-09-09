@@ -1,1 +1,0 @@
-# dipko-challange
